@@ -17,7 +17,7 @@ Resuming, it´s an experience I recommend to everyone and if you have the opport
 On the other side, I have some other pastimes (or used to have, actually 😅) Sea kayaking and cosplay were 2 of them:
 ![178707_10150943589126647_564779997_o](https://user-images.githubusercontent.com/120907520/219437357-577cc5d2-60ca-4847-b4f6-ffe0b720d376.jpg)
 ![Captura_de_pantalla_2023-02-08_174947](https://user-images.githubusercontent.com/120907520/219437389-ce56e75a-3d40-498c-b734-bc5905bd85b8.jpg)
-But all of these would have not been possible without the support of my family=my wonderful wife + my amazing kid 😍😍, lots of kisses for them 😘😘😘😘
+But all of these would have not been possible without the support of my family 😍😍, lots of kisses for them 😘😘😘😘
 ![Captura_de_pantalla_2023-02-08_182350](https://user-images.githubusercontent.com/120907520/219437503-db74b93e-340b-4ff7-ab44-ed83f1690798.jpg)
 And that would be all for the moment, but the future looks bright!!! 
 
